@@ -1,3 +1,20 @@
+# [💚💚💚💚💚 10年经验老铁测评，最新权威，点击查看攻略，拒绝跑路VPN！](https://cntizi1.com/?gitwuxianex-outvpn-desc)
+
+<!DOCTYPE html>
+<html>
+<head>
+ <meta charset="utf-8">
+</head>
+<body>
+<a href="https://cntizi1.com/?gitwuxianex-outvpn-pic"><img src="https://cntizi1.com/images/recommend.png" target="_blank"> </a>
+</body>
+</html>
+
+
+---------
+
+--------
+
 ### 亲测好用的国外梯子排行：
 
 |  梯子推荐榜   | 官方介绍 | 官网地址1  | 官网地址2 | 官网地址3 |
